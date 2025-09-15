@@ -1,1 +1,1 @@
-# disaster-preparedness
+# disaster-action and responsebility training
